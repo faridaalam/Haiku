@@ -8,9 +8,9 @@ saman3
 
 
 
-
-
-
+farid
+farid
+farid
 Inclement dawning
 A wooden, intense horse chirps
 despite the hammer
